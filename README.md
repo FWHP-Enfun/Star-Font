@@ -24,15 +24,15 @@ It can be changed at will, but it cannot be re-sold
 
 # 原來的字體 Original Font
 
-宅在家自動筆
+宅在家自動筆 Star Love Pencil
 
 https://home.gamer.com.tw/creationDetail.php?sn=4470108
 
-宅在家麥克筆
+宅在家麥克筆 Star Love Marker
 
 https://home.gamer.com.tw/creationDetail.php?sn=4662078
 
-宅在家粉條甜
+宅在家粉條甜 Star Love Sweety
 
 https://home.gamer.com.tw/creationDetail.php?sn=5378926
 
